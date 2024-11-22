@@ -1,0 +1,1 @@
+On essaye sans le cylindre et d'optimiser sans mettre la pression, je pense que c'est mieux. 
